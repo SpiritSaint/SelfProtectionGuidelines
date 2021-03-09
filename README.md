@@ -22,3 +22,7 @@
 - **Respect people**. Reduce your enemies by getting allies. People want respect on top.
 - **Be careful**. Every movement is being watched. Take seriously what do you say or do.
 - **Train yourself**. Martials arts or high performance sports are good when you're under pressure.
+
+Follow this rules and you'll be free. Not certarnly true but you'll be more strong in mind meaning.
+
+![https___s3-images ladbible com_s3_content_bd9f19995fe03288211239f5ac6e093f](https://user-images.githubusercontent.com/8731267/110416347-583dbc00-8072-11eb-909b-09c6f707e4aa.jpeg)
