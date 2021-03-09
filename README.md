@@ -1,6 +1,7 @@
 # Self-protection Guidelines
 
 - **Do not let** anyone follow you.
+- **Watch every arround faces** including cars, cycles or in foot people.
 - **Militarize your house**, use camera, record faces and implement facial detection software.
 - **Encrypt your computer** and every computer on your network.
 - **Do not publish** your face or family pictures.
