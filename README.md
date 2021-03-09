@@ -2,10 +2,12 @@
 
 - **Do not let** anyone follow you.
 - **Watch every arround faces** including cars, cycles or in foot people.
+- **Detect local authorities** they are hiding like rats but phsycal language are most obviusly thing in people.
 - **Militarize your house**, use camera, record faces and implement facial detection software.
 - **Encrypt your computer** and every computer on your network.
 - **Do not publish** your face or family pictures.
 - **Do not use** commonly-used social networks. People disappear more frecuently when uses those networks. 
+- **Do not abuse of video streaming apps**. They want you like a zombie, watching their impersonation videos. 
 - **Reduce your social links**. Mostly people want controll you in different ways, exploit in your brain breaches.
 - **Do not watch movies** if you wanna be yourself, keep your mind outside of distractor or clone generators.
 - **Live in heathly way**. Do sports, go away beer drinks and keep in focus loops.
