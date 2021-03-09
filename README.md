@@ -1,0 +1,21 @@
+# Self-protection Guidelines
+
+- **Do not let** anyone follow you.
+- **Militarize your house**, use camera, record faces and implement facial detection software.
+- **Encrypt your computer** and every computer on your network.
+- **Do not publish** your face or family pictures.
+- **Do not use** commonly-used social networks. People disappear more frecuently when uses those networks. 
+- **Reduce your social links**. Mostly people want controll you in different ways, exploit in your brain breaches.
+- **Do not watch movies** if you wanna be yourself, keep your mind outside of distractor or clone generators.
+- **Live in heathly way**. Do sports, go away beer drinks and keep in focus loops.
+- **Study**. Stop wasting time in games or w/e. Learn courves are reduced having distractors.
+- **Get away of risks.** Be peaceful, don't take care about dangerous people.
+- **Improve your knowledge**. That's will be helpful in future scenarios.
+- **Think in future, live the present**. Take seriously your future movements but don't forget your current status.
+- **Your enemies can be your friends**. Remember how your fathers says "Keep your friends close but more your enemies". Wrong phrase. Keep enemies away if you don't want play the game.
+- **Keep positive attitude**. Nothing is worst than a negattive attitude.
+- **Surround yourself with good people**. They will build up yourself more than evil people.
+- **Do not buy guns**. Of couse, if you don't know how to use it.
+- **Respect people**. Reduce your enemies by getting allies. People want respect on top.
+- **Be careful**. Every movement is being watched. Take seriously what do you say or do.
+- **Train yourself**. Martials arts or high performance sports are good when you're under pressure.
